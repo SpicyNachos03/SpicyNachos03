@@ -1,1 +1,1 @@
-3rd Year Computer Science Student @ UGA
+4th Yr CS @ UGA.
