@@ -1,1 +1,1 @@
-4th Yr CS @ UGA.
+CS @ UGA
